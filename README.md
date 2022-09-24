@@ -7,3 +7,5 @@
 ![masoor dal](https://user-images.githubusercontent.com/110655425/192111815-3f721172-35b4-4301-89cc-7802773e4696.jpg)
 ![brocoli](https://user-images.githubusercontent.com/110655425/192111822-a54504be-e6ac-4cd7-96c0-3bee09ebf101.jpg)
 ![Mung bean](https://user-images.githubusercontent.com/110655425/192111828-bffd1f59-8884-45a0-953c-f656968cde26.jpg)
+![Apple](https://user-images.githubusercontent.com/110655425/192111924-5c2daff6-39af-4430-9c58-7dc541e860de.jpg)
+![Watermelon](https://user-images.githubusercontent.com/110655425/192111930-64299834-0695-48f4-8481-53edc7e34434.jpg)
